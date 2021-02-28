@@ -1,2 +1,2 @@
-# Mian Jawad Ahmad
+# Muhammad Daniyal Khan's Portfolio
 
